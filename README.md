@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **anything! I love chatting**
 
-- 📫 How to reach me **nicolasgpamoraes@hotmail.co,**
+- 📫 How to reach me **nicolasgpamoraes@hotmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
